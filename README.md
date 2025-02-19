@@ -19,3 +19,5 @@ Feb 14, 2025 - its valentines day you have many things to do, such as going to s
 Feb 15, brown out
 
 Feb 18, 2025, tuesday another day to find a job. geez
+
+Feb 19, 2025, healthlink - then city hall (cedula) - baranggay certificate - home - police clearance 
