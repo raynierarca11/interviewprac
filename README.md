@@ -21,3 +21,7 @@ Feb 15, brown out
 Feb 18, 2025, tuesday another day to find a job. geez
 
 Feb 19, 2025, healthlink - then city hall (cedula) - baranggay certificate - home - police clearance 
+
+Feb, 21, 2025 - House all the time- I was recovering from burn out.
+
+Feb 22, 2025 - Carpe Diem.
