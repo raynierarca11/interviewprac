@@ -15,4 +15,4 @@ Please practice self compassion
 Just keep moving forward.
 
 keep forward
-.
+. .
